@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Rekalh
+- 👀 I’m interested in absolutely nothing
+- 🌱 I’m currently learning how to not be a complete failure
+- 📫 How to reach me: You can't
